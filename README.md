@@ -1,0 +1,2 @@
+# Alpha-Contract
+(-_-)ÿ
